@@ -4,7 +4,7 @@
 
 ###
 
-<img align="right" height="150" src="https://tenor.com/en-IN/view/zoro-edit-roronoa-zoro-roronoa-zoro-edit-gif-11527543901737057527"  />
+<img align="right" height="150" src="https://media1.tenor.com/m/n_oQGmPB_PcAAAAd/zoro-edit-roronoa-zoro.gif"  />
 
 ###
 
